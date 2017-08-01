@@ -41,3 +41,4 @@ height="40" alt="web"/> Generar Reporte html</a>
 nel perro solo io puedo >:v
 no aparese nada rodri >:v
 revisa ahora, ward v:
+mientras este mensaje no salga fercho es noob >:v
